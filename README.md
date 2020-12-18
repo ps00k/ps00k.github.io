@@ -1,8 +1,7 @@
-### Resources
+### Calendars
 
-[LinkedIN](https://linkedin.com/in/theythem)
+If you know of alternative calendars/missing holidays, reach out to ghostwithfins@gmail.com or [mailto link](mailto:ghostwithfins@gmail.com)
 
-[Instagram](https://www.instagram.com/spectralglitter/)
+[Global Queer Awareness Days Calendar](https://calendar.google.com/calendar/u/0?cid=bXQ2Y3M5ZzFmbXVlbnFqNmJuZzVmdHE2bzhAZ3JvdXAuY2FsZW5kYXIuZ29vZ2xlLmNvbQ)
 
-[Linktree](https://l.instagram.com/?u=https%3A%2F%2Flinktr.ee%2Fspectralglitter&e=ATPEBS_n3Pp5AjQl5ht1xqMX8MgY7lUoNgD8o5WKTN-aM-wmWMvjQwBOqzVOoG0eUPu4qjWpxrpZ9SEWLo3jrw&s=1)
-
+[USA Specific Queer Awareness Days Calendar](https://calendar.google.com/calendar/u/0?cid=MWRqamZlcXFxcWYzNTU2N3FkcnMwbW1jbzhAZ3JvdXAuY2FsZW5kYXIuZ29vZ2xlLmNvbQ)
